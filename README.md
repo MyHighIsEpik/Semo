@@ -1,2 +1,2 @@
 # Semo
-https://myhighisepik.github.io/Semo/
+https://vlslrtm2751.github.io/Semo/
